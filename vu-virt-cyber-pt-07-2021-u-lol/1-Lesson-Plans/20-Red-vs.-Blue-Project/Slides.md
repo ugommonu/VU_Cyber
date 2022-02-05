@@ -1,0 +1,1 @@
+The slideshow for this week is located on Google Drive: [Unit 20: Red Team vs. Blue Team Slides](https://docs.google.com/presentation/d/1NpqxpVtpPjXTx_6MZPfCLAoWja0EWYVZG9dn2kpy16o/edit#slide=id.g808d6bca43_0_0)

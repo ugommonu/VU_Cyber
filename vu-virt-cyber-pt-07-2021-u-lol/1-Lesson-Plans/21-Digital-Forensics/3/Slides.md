@@ -1,0 +1,1 @@
+- Slides for today's lesson can be found on Google Slides: [21.3 Slides](https://docs.google.com/presentation/d/19MCFJcIUPWK_LpHjLWAUvbKRaa9KvaQLblxKiwN7Ho0/edit).

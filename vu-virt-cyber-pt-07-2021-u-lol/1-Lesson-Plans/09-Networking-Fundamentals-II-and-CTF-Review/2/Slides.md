@@ -1,0 +1,1 @@
+- The lesson slides are available on Google Drive here: [9.2 Slides](https://docs.google.com/presentation/d/1la0bC0QtxxfJKgU7T8nSSX9xSxOX0gmRN8vUdcufrV4/edit#slide=id.g4789b2c72f_0_6)
